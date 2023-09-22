@@ -1,7 +1,7 @@
 
 最新回家地址 👋 (最新更新时间2023-09- 20)
 
-暗网禁区 网页版 最新地址  https://ad4e.ykjsmo.com
+暗网禁区 网页版 最新地址   https://awjq.net
 
 暗网禁区 中转 地址  https://awjq.xyz/
 
