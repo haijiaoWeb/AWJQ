@@ -26,9 +26,9 @@
 
 海角社区   https://3a3.ahvtqd.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
-缅北禁地  https://a43b.tcdohp.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
-
 暗网禁区   https://c78d.gkzdpy.com （禁止直接点击访问）请复制链接粘贴到浏览器
+
+缅北禁地  https://a43b.tcdohp.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
 
 换妻俱乐部：  https://1abe.taomsy.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
