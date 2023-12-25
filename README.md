@@ -6,7 +6,7 @@
 
 暗网禁区 中转 地址   https://anwang.fun
 
-暗网禁区 app 最新地址     https://0c05.dvoqmi.com
+暗网禁区 app 最新地址    https://fuh3.rzgtiv.com
 
 【请复制链接粘贴到 手机自带浏览器，谷歌浏览器，uc浏览器， 火 狐 浏览器 打开，如哪个网址打不开请回复我们，帮助我们加快恢复处理】禁止用QQ、百度 浏览器。
 
