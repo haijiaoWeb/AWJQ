@@ -28,11 +28,13 @@
 
 暗网禁区  https://fuh3.rzgtiv.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
-缅北禁地  https://79.fmasdv.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
+缅北禁地   https://79.fmasdv.com（禁止直接点击访问）请复制链接粘贴到浏览器打开
 
 草榴社区   https://r2rf.ompmhm.com（禁止直接点击访问）请复制链接粘贴到浏览器
 
 换妻俱乐部：  https://48d.xfcjat.com （ 禁止直接点击访问）请复制链接粘贴到浏览器
+
+AI色色   https://jk88.cvmgtn.com  （禁止直接点击访问）请复制链接粘贴到浏览器
 
 91AV：  https://15.tubylw.com （禁止直接点击访问）请复制链接粘贴到浏览器
 
